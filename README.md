@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Stephen-Terera
-- 👀 I’m interested in music,sport and gaming 
 - 🌱 I’m currently studying computer science at Nottingham Trent University.
 - 📫 Email me  at stephenterera@gmail.com
 
